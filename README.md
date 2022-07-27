@@ -1,4 +1,6 @@
 # styleICREATE
 
 
-Hello There This is my First Project in github you can play with the codes here. . .
+Hello My Name is R-Agen . I'm heere to explore web Developer, anyone can participate in this journey. PS. To be mastery as Hell. . Lol
+Create Website in just a year if posible and functioning at get earn to it
+
